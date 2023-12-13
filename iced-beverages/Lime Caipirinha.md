@@ -8,5 +8,6 @@
 - 1 glass of cachaca
 - 2 tsp of Sugar
 - Ice
+- 1 tbsp of Cinnamon powder
 
 ## Mix all together into a blender. 
