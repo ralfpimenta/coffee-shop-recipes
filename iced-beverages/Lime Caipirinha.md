@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 8 oz Lime Juice
-- 1 glass of cachaca
+- 1 glass of vodka
 - 2 tsp of Sugar
 - Ice
 - 1 tbsp of Cinnamon powder
